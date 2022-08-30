@@ -1,0 +1,1 @@
+# advocatalmaty.kz
